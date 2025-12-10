@@ -38,7 +38,7 @@ You can opt out of receiving SMS messages at any time by replying with the keywo
 
 Help & Support:
 
-If you are experiencing issues or need assistance, you can reply with the keyword HELP. You can also contact us directly via our [Contact Us Page]([Link to your Contact Us page]) or call us at [Your Phone Number].
+If you are experiencing issues or need assistance, you can reply with the keyword HELP. You can also contact us directly at www.pinesneuro.com or call us at 954-441-9550.
 
 Standard Messaging Disclosures:
 
